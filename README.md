@@ -1,4 +1,6 @@
 ## Kisses
+
+```
 French
 Peck
 Nibble
@@ -36,9 +38,12 @@ X-Rated
 Snog
 Ice Kiss
 Backwards
-Slow Motion 
+Slow Motion
+```
 
 ## Side Orders
+
+```
 Hug
 Spank
 Tickle
@@ -56,10 +61,14 @@ Nipple Lick
 Clothing Swap
 Flogging
 Paddling
+```
 
 ## Big Signs
+
+```
 Help Wanted
 Kinky
 Menu
 Side Orders
 Consent
+```
